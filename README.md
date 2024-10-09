@@ -2,7 +2,7 @@
 - 👀 I’m interested in CODE,GIRLS,VACATIONS & $MONEY
 - 🌱 I’m currently learning WEB DEVELOPMENT
 - 💞️ I’m looking to collaborate on NOTHING FOR NOW !      
-- 📫 How to reach me WHATSAPP +919609193210
+- 📫 How to reach me WHATSAPP +919609193210 OR E-mail : scholarvaibhav007@gmail.com
 - 😄 Pronouns: THE/HE/HIM
 - ⚡ Fun fact: EVERYONE WILL DIE ONE DAY !!! LOL
 <!---
